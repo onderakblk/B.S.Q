@@ -1,0 +1,2 @@
+# B.S.Q
+deneme
